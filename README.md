@@ -69,4 +69,4 @@
 
 
 ## 科大学习关键事件时间线
-![-w737](media/15603287060101.jpg)
+![](http://ww1.sinaimg.cn/large/af1cab2fly1g4ln5y4u8dj214y12ugpy.jpg)
