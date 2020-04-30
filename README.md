@@ -69,7 +69,15 @@
     - 实习有的公司需要照片，照相馆推荐：**翰林恒天影像**。
     - ATM存取款：公寓门口有个工行的ATM，文星广场有中国银行ATM，由于我们的学子卡是中国银行，月亮湾
 
+## 毕业论文
 
 ## 科大学习关键事件时间线
 `待补充......`
-![](http://ww1.sinaimg.cn/large/af1cab2fly1g4ln5y4u8dj214y12ugpy.jpg)
+![ustc-sse-github](http://xushan.godjiyi.cn/mweb/ustc-sse-github.png)
+
+
+## 友情链接
+考研公众号：旭日考研阁
+
+电影音乐公众号：电影音乐赏析
+
